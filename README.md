@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @CroweRoyality
+- 👀 I’m interested in Minecraft
+- 🌱 I’m currently learning Java
+- 📫 How to reach me ...
+- Discord: *x3RoyalityCrowe#0212
+- Instagram: @royality.qw
